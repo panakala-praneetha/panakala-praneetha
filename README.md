@@ -59,6 +59,6 @@ Languages I Know:
 🌱 Continuous Learning and Upskilling
 
 📫 Let's Connect!
-🔗 LinkedIn
+🔗 LinkedIn :praneethapanakala
 
-📧 Email: your-email@example.com
+📧 Email: panakalapraneetha@gmail.com
